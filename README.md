@@ -6,9 +6,9 @@ hello!! UDD system, please dont liek. harrass me thanks heart emoji
 </p>
 
 <p align="center">
-  <a href="https://HELLPIERCEDHER.straw.page">please read my strawpage</a>
+  <a href="https://seildirectory.straw.page">please read my strawpage</a>
   <a href="https://ozerum.atabook.org/">please sign my atabook</a>!!
 </p>
 <p align="center">
-have a wonderful day, and stay safe.
+have a wonderful day, and stay safe. my discord is devoted2you if you read my strawpage and respect my boundaries !
 </p>
